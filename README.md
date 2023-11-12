@@ -1,2 +1,2 @@
-# Lucky-
+# Lucky
 Lh khg
